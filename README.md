@@ -5,8 +5,6 @@
 
 https://youtu.be/WRRvF5Muypc 
 
-https://drive.google.com/file/d/1S-PoDLvudm1XVC0Ia3ys8jVjXJgjlAYx/view
+https://youtu.be/0B9H-6nphU8
 
-https://drive.google.com/file/d/140rUwkvsRDp-aIBPY3ME2-M-KglHMwlA/view
-
-https://drive.google.com/file/d/1zY1-ygco3v29PJ1IScV2TOg62qpx-T_L/view
+https://youtu.be/XeQe7aN0VMw
