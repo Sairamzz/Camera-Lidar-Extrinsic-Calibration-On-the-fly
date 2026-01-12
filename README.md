@@ -49,3 +49,9 @@ https://youtu.be/WRRvF5Muypc
 ### Lidar Cam Extrinsic Calibration - ISEC Bridge (Offset R+t)
 
 https://youtu.be/XeQe7aN0VMw
+
+## Contributors
+- [Sairam Sridharan](https://github.com/Sairamzz)
+- Hamza Naeem
+- Gowtham Parasuram
+- Ronit Shetty
